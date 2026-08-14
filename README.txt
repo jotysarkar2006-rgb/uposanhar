@@ -1,0 +1,1 @@
+উপসংহার Free Shop v2 — Home, Shop, Cart, quantity, customer details and WhatsApp checkout. Product: Handmade Bengali Rakhi ₹25, stock 10, customisation available.
